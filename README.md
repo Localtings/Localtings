@@ -1,2 +1,1 @@
-# A Roblox Developer, Python/C++ Programmer.
-My Roblox account: @Loca1t
+@Loca1t on Roblox
